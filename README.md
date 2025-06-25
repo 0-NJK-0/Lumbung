@@ -1,2 +1,0 @@
-# Lumbung
-Lumbung Rejeki
